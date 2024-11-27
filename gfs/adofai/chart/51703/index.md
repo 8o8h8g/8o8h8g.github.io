@@ -8,6 +8,6 @@
 
 
 ## 下载
-<http://res1.xn--4gqv7j9yzepl.co/gfs/adofai/chart/51703/15.%20Singularity%20at%202.64e%2B6%20BPM.zip>
+[http://res1.一氧化碳.co/gfs/adofai/chart/51703/15.%20Singularity%20at%202.64e%2B6%20BPM.zip](http://res1.xn--4gqv7j9yzepl.co/gfs/adofai/chart/51703/15.%20Singularity%20at%202.64e%2B6%20BPM.zip)
 
 
