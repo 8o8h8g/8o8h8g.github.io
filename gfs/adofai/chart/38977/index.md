@@ -8,6 +8,6 @@
 
 
 ## 下载
-<http://res1.xn--4gqv7j9yzepl.co/gfs/adofai/chart/38977/ADOFAI%20-%20Paprika's%202.6%20Trillion%20Lag%20Tester%20(disguised%20version).zip>
+[http://res1.一氧化碳.co/gfs/adofai/chart/38977/ADOFAI%20-%20Paprika's%202.6%20Trillion%20Lag%20Tester%20(disguised%20version).zip](http://res1.xn--4gqv7j9yzepl.co/gfs/adofai/chart/38977/ADOFAI%20-%20Paprika's%202.6%20Trillion%20Lag%20Tester%20(disguised%20version).zip)
 
 
