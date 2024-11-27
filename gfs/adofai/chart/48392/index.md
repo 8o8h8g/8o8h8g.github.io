@@ -7,6 +7,6 @@
 
 
 ## 下载
-<http://res1.xn--4gqv7j9yzepl.co/gfs/adofai/chart/48392/Eltaw-TFTingFeng.zip>
+[http://res1.一氧化碳.co/gfs/adofai/chart/48392/Eltaw-TFTingFeng.zip](http://res1.xn--4gqv7j9yzepl.co/gfs/adofai/chart/48392/Eltaw-TFTingFeng.zip)
 
 
